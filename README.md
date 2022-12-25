@@ -1,0 +1,1 @@
+Bu readmi fayl bolib nimadur yozishim kerak edi shu gaplarni yozdim :)
